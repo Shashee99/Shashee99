@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **janith.shashika1@gmail.com**
 
-- ⚡  **I can't help without coding😂❤️‍🔥**
+- ⚡Fun fact: **I can't help without coding😂❤️‍🔥**
 
 
 
