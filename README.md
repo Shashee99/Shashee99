@@ -3,7 +3,7 @@
 
 
 
-- 🔭 I’m currently ComputerScience undergraduate **Univercity of Colombo School of Computing**
+- 🔭 I’m currently working on **Springboot project**
 
 - 👨‍💻 All of my recent projects are available in  my repositories
 
